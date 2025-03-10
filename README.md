@@ -18,6 +18,6 @@ At ChunksLab Creations, we specialize in providing high-quality design and plugi
 For inquiries or more information about our services, reach out to us through the following channels:
 - 📧 **Email**: info@chunkslab.com
 - 🌐 **Website**: [www.chunkslab.com](https://www.chunkslab.com)
-- 📌 **Discord**: [Join Our Discord](https://discord.gg/xyz)
+- 📌 **Discord**: [Join Our Discord](https://discord.gg/BuyNy9JfN2)
 
-Level up your Minecraft experience with ChunksLab Creations! 🎮🔥
+Level up your Minecraft experience with ChunksLab Creations! 🔥
